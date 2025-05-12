@@ -57,7 +57,7 @@ The Top categories of CXL courses on the platform include:
 * SEO
 * PPC
 
-![|624x97|624x97](https://lh7-rt.googleusercontent.com/docsz/AD_4nXcf4I09DTCmLPKvUvb1mCHw43uxBPPxhc9MGsyrjtxZsvQK0ODkVpKUkaoz0Bs6HvFXBnepI8ftem5spOpkjXw4YePvmcQjHNg6nhis4DkudNOcMRIGsvkFjuptNdd_cOnHD8P3kQ?key=sclY6bqAgyL3iB3WRm1kh2II)
+[![|624x97|624x97](https://lh7-rt.googleusercontent.com/docsz/AD_4nXcf4I09DTCmLPKvUvb1mCHw43uxBPPxhc9MGsyrjtxZsvQK0ODkVpKUkaoz0Bs6HvFXBnepI8ftem5spOpkjXw4YePvmcQjHNg6nhis4DkudNOcMRIGsvkFjuptNdd_cOnHD8P3kQ?key=sclY6bqAgyL3iB3WRm1kh2II)](http://cxl.com/institute?fp_ref=lite&fp_sid=wreview)
 
 The fact that CXL exclusively provides top-notch, advanced courses taught by professionals from renowned organizations like Google, IKEA, Hilton, Profitwell, and GrowthHackers distinguishes it from other online learning platforms.
 
@@ -225,7 +225,9 @@ For anyone interested in conducting conversion research, this course covers 85% 
 
 Conversion rate optimization and the research process required to perform high-quality CRO are best understood with its help.
 
-Peep is quite sharp. He doesn't mince words and gets right to the point. ![|624x97|624x97](https://lh7-rt.googleusercontent.com/docsz/AD_4nXfxSLpLnjN7vBjQ15d5dtHhTD8PrwS3cL41I9iy5fBrxwduUxBTpPdsn_hvtFk9CLwFlL9qzQd7ApYBiK3B7drXp9FKlIDT867KJwyWvOgK-UHU0ch3lclYEGwou2Oqoxr9uWCdPg?key=sclY6bqAgyL3iB3WRm1kh2II)
+Peep is quite sharp. He doesn't mince words and gets right to the point. 
+
+[![|624x97|624x97](https://lh7-rt.googleusercontent.com/docsz/AD_4nXfxSLpLnjN7vBjQ15d5dtHhTD8PrwS3cL41I9iy5fBrxwduUxBTpPdsn_hvtFk9CLwFlL9qzQd7ApYBiK3B7drXp9FKlIDT867KJwyWvOgK-UHU0ch3lclYEGwou2Oqoxr9uWCdPg?key=sclY6bqAgyL3iB3WRm1kh2II)](http://cxl.com/institute?fp_ref=lite&fp_sid=wreview)
 
 ### 2) Ton Wesseling: Teaches A/B Mastery
 
@@ -233,7 +235,7 @@ Wesseling is an A/B testing expert. He has over 20 years of experience in this f
 
 [Mastery of A/B Testing Course](http://cxl.com/institute?fp_ref=lite&fp_sid=wreview)
 
-![|225x225](https://lh7-rt.googleusercontent.com/docsz/AD_4nXe_P1BamYUU_XH0w5f4RWsDGVKE2zLrCtNkWOQyEOgiy3ecFObOFsCg27RO7avcwkLXc3YvfuqlJbJbbkssB1_Fq-k08R9MhHjVClJUgac3udSTQ04uCoLxrV_QLlUT9TYuLTSaYQ?key=sclY6bqAgyL3iB3WRm1kh2II)
+[![|225x225](https://lh7-rt.googleusercontent.com/docsz/AD_4nXe_P1BamYUU_XH0w5f4RWsDGVKE2zLrCtNkWOQyEOgiy3ecFObOFsCg27RO7avcwkLXc3YvfuqlJbJbbkssB1_Fq-k08R9MhHjVClJUgac3udSTQ04uCoLxrV_QLlUT9TYuLTSaYQ?key=sclY6bqAgyL3iB3WRm1kh2II)](http://cxl.com/institute?fp_ref=lite&fp_sid=wreview)
 
 Course duration: 5 hours and 10 minutes, comprising 19 classes
 
@@ -390,7 +392,7 @@ So, yeah, it’s a grind, but the skills? Next-level. You in or nah?
 
 CXL offers a 7-day trial for $1. It is a great way to browse all its premium content to decide whether investing in CXL would be worth it.
 
-![|624x97|624x97](https://lh7-rt.googleusercontent.com/docsz/AD_4nXdAUlWGoiwpamFuIAljXfzgdyF_0aoAvfqpSvmvI0QnFx0z2gTEUn3ALtjrskRwP7yTOFHSKxtxTxkPa9I2duXnFBo4qrTKNPgqxRod5XDmFvBQn4oWBTffJfZuEVHaSRTzjxqq2w?key=sclY6bqAgyL3iB3WRm1kh2II)
+[![|624x97|624x97](https://lh7-rt.googleusercontent.com/docsz/AD_4nXdAUlWGoiwpamFuIAljXfzgdyF_0aoAvfqpSvmvI0QnFx0z2gTEUn3ALtjrskRwP7yTOFHSKxtxTxkPa9I2duXnFBo4qrTKNPgqxRod5XDmFvBQn4oWBTffJfZuEVHaSRTzjxqq2w?key=sclY6bqAgyL3iB3WRm1kh2II)](http://cxl.com/institute?fp_ref=lite&fp_sid=wreview)
 
 Refunds are not offered after the trial, so it's crucial to make sure it fits your availability and goals.
 
@@ -462,7 +464,7 @@ My expertise in subjects like psychology, statistics, and A/B testing has direct
 
 The platform is renowned for offering thorough resources that assist users in improving their proficiency in digital marketing, and well-known businesses like Google and Amazon support its legitimacy.
 
-![|624x97|624x97](https://lh7-rt.googleusercontent.com/docsz/AD_4nXdRTtwSMhxm5qe302xdBCde4aFI_0rtIpmOjWCZ29lVb6VPlupEJ4pt908x2UParwpZG86ppEqu_P-9AkLmZU1HLGx9njWzZ94PtDhK3SOWNKkZ44ixyx2vHgjDWXXGyf9ytmdzUA?key=sclY6bqAgyL3iB3WRm1kh2II)
+[![|624x97|624x97](https://lh7-rt.googleusercontent.com/docsz/AD_4nXdRTtwSMhxm5qe302xdBCde4aFI_0rtIpmOjWCZ29lVb6VPlupEJ4pt908x2UParwpZG86ppEqu_P-9AkLmZU1HLGx9njWzZ94PtDhK3SOWNKkZ44ixyx2vHgjDWXXGyf9ytmdzUA?key=sclY6bqAgyL3iB3WRm1kh2II)](http://cxl.com/institute?fp_ref=lite&fp_sid=wreview)
 
 CXL provides a seven-day free trial for people who aren't sure they want to commit, as well as free courses that can give you a sense of the platform’s value.
 
